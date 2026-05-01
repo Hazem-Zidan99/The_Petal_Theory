@@ -8,7 +8,7 @@ The brand offers a personal, artistic, and meaningful alternative to traditional
 ##  Team Members and Roles
 - Hazem Zidan
 - Yasmeen Badr 
-- Mayar Essam 
+- Mayan Essam 
 - Romiassaa Hosny 
 ---
 
