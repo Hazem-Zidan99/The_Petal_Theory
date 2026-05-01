@@ -5,7 +5,7 @@ Through the symbolic language of flowers, every relationship is translated into 
 The brand offers a personal, artistic, and meaningful alternative to traditional wedding invitations.
 ---
 
-##  Team Members and Roles
+##  Team Members and Roles:
 - Hazem Zidan
 - Yasmeen Badr 
 - Mayan Essam 
