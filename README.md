@@ -37,6 +37,3 @@ The aim is to position the brand as a distinctive, premium alternative in the we
 
 ## Drive Link
 -
-
-## Figma Link
--
