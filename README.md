@@ -1,4 +1,4 @@
-[The Petal Theory.pdf](https://github.com/user-attachments/files/28195364/The.Petal.Theory.pdf)
+
 [The Petal Theory.pdf](https://github.com/user-attachments/files/28195360/The.Petal.Theory.pdf)
 # Project Name: The Petal Theory
 ### _[Project Tagline / Short Description]_
