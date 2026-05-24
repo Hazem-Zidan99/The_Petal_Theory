@@ -38,5 +38,5 @@ The aim is to position the brand as a distinctive, premium alternative in the we
 ## Drive Link
 -
 ## Social Media Links
-https://www.instagram.com/thepetal.theory/reels/?hl=ar
-https://www.tiktok.com/@the.petal.theory?is_from_webapp=1&sender_device=pc
+-https://www.instagram.com/thepetal.theory/reels/?hl=ar
+-https://www.tiktok.com/@the.petal.theory?is_from_webapp=1&sender_device=pc
