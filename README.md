@@ -30,12 +30,6 @@ The aim is to position the brand as a distinctive, premium alternative in the we
 - Objective 2: Offer a personalized design experience where each couple’s story is translated into a meaningful floral concept. 
 - Objective 3: Build strong brand awareness through Instagram, visual storytelling, and wedding industry partnerships.  
 - Objective 4: Position The Petal Theory as a premium alternative to traditional and template-based wedding invitations.  
-
----
-
->  **Final Deliverable:** Describe the final output of the project
-
-
 -
 ## Project Social Media Links
 - https://www.instagram.com/thepetal.theory/reels/?hl=ar
