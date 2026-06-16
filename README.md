@@ -1,6 +1,3 @@
-
-
-[The Petal Theory.pdf](https://github.com/user-attachments/files/28195360/The.Petal.Theory.pdf)
 # Project Name: The Petal Theory
 ### _[Project Tagline / Short Description]_
 The Petal Theory is a premium design boutique that creates bespoke wedding invitations inspired by each couple’s love story.
