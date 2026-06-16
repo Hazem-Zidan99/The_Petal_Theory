@@ -39,8 +39,8 @@ The aim is to position the brand as a distinctive, premium alternative in the we
 
 >  **Final Deliverable:** Describe the final output of the project
 
-## Drive Link
+
 -
-## Social Media Links
+## Project Social Media Links
 -https://www.instagram.com/thepetal.theory/reels/?hl=ar
 -https://www.tiktok.com/@the.petal.theory?is_from_webapp=1&sender_device=pc
